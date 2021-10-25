@@ -21,4 +21,4 @@ My accomplishments:
 - 14-star in Hypixel Bedwars :(
 - Librarian at my school 
 
-If you want to contact me, pop me a friend request at Skyla#3903 on Discord. 
+If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord. 
