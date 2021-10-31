@@ -8,7 +8,7 @@ My interests:
 - Piano 
 - Composing 
 - Minecraft 
-- [Battletabs](https://battletabs.io)
+- [Battletabs](https://battletabs.io) (about me in BattleTabs: https://flyspeck101.github.io/BattleTabs)
 - Chess 
 - [Developing](https://split-diamond-labs.github.io)
 - Food 
