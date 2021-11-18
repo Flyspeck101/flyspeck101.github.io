@@ -42,3 +42,7 @@ My accomplishments:
 - Librarian at my school 
 
 If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
+
+<script src="quotes.js"></script>
+<p>Quote of the day:</p>
+<p id="quote"></p>
