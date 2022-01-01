@@ -35,7 +35,7 @@ My interests:
 - Community 
 
 My accomplishments: 
-- Community Hero in [BattleTabs Discord Server](https://discord.gg/wNkujNWkqf)
+- Moderator in [BattleTabs Discord Server](https://discord.gg/wNkujNWkqf)
 - Grade 6 AMEB Piano with B+ (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
 - 14-star in Hypixel Bedwars :(
