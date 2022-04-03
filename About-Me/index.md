@@ -30,6 +30,7 @@ My interests:
 - Minecraft 
 - [Battletabs](https://battletabs.io) (My BT profile: [https://flyspeck101.github.io/BattleTabs](https://flyspeck101.github.io/BattleTabs))
 - Chess 
+- Tetris
 - [Developing](https://split-diamond-labs.github.io)
 - Food 
 - Community 
@@ -39,6 +40,7 @@ My accomplishments:
 - Grade 6 AMEB Piano with B+ (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
 - 14-star in Hypixel Bedwars :(
+- A rank and top 1000 in the country in TETR.IO
 - Librarian at my school 
 
 If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
