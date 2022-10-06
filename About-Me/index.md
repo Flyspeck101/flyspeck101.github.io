@@ -40,8 +40,7 @@ My accomplishments:
 - Grade 6 AMEB Piano with B+ (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
 - 14-star in Hypixel Bedwars :(
-- A rank and top 1000 in the country in TETR.IO
-- Librarian at my school 
+- S+ rank and top 5000 in TETR.IO
 
 If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
 
