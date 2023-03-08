@@ -1,8 +1,8 @@
 # Hi! I'm Flyspeck101. 
 
-I'm from Split Diamond Labs (https://split-diamond-labs.github.io). Call me Flyspeck or Fsp for short. 
+I'm a very old muffin. Call me Flyspeck or Fsp for short. 
 
-I live in Sydney, Australia, and I hate online learning. I don't swear, except for in German (even though I'm not German, or Swiss, or Belgian, or Austrian, or Hungarian, etc.)
+I live in Muffia, aka The Muffin Kingdom aka Muffland. 
 
 Acceptable names to call me: 
 - Flyspeck101 
@@ -30,8 +30,9 @@ My interests:
 - Minecraft 
 - [Battletabs](https://battletabs.io) (My BT profile: [https://flyspeck101.github.io/BattleTabs](https://flyspeck101.github.io/BattleTabs))
 - Chess 
-- Tetris
-- [Developing](https://split-diamond-labs.github.io)
+- Tetris 
+- [Tetris opener theory](https:/bit.ly/fsps-openers) 
+- Developing
 - Food 
 - Community 
 
@@ -39,8 +40,10 @@ My accomplishments:
 - Moderator in [BattleTabs Discord Server](https://discord.gg/wNkujNWkqf)
 - Grade 6 AMEB Piano with B+ (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
-- 14-star in Hypixel Bedwars :(
-- S+ rank and top 5000 in TETR.IO
+- U rank and top 2000 in TETR.IO
+- Respectedish opener theorist with three completed Tetris openers
+- Rubik's Cube 3x3 solved in 47 seconds, 4x4 solved in 179 seconds 
+- Division Winner in the 2022 NSW Secondary Schools Chess Competition (Intermediate) 
 
 If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
 
