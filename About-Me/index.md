@@ -2,7 +2,7 @@
 
 I'm a very old muffin. Call me Flyspeck or Fsp for short. 
 
-I live in Muffia, aka The Muffin Kingdom aka Muffland. 
+I live in Muffia, aka The Muffin Kingdom aka Muffland. He/him.
 
 Acceptable names to call me: 
 - Flyspeck101 
