@@ -31,7 +31,7 @@ My interests:
 - [Battletabs](https://battletabs.io) (My BT profile: [https://flyspeck101.github.io/BattleTabs](https://flyspeck101.github.io/BattleTabs))
 - Chess 
 - Tetris 
-- [Tetris opener theory](https:/bit.ly/fsps-openers) 
+- [Tetris opener theory](https://bit.ly/fsps-openers) 
 - Developing
 - Food 
 - Community 
