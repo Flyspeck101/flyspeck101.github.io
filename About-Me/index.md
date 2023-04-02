@@ -41,7 +41,7 @@ My accomplishments:
 - Grade 6 AMEB Piano with B+ (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
 - U rank and top 2000 in TETR.IO
-- Respectedish opener theorist with three completed Tetris openers
+- Respectedish opener theorist with six completed Tetris openers
 - Rubik's Cube 3x3 solved in 47 seconds, 4x4 solved in 179 seconds 
 - Division Winner in the 2022 NSW Secondary Schools Chess Competition (Intermediate) 
 
