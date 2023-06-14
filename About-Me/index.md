@@ -38,10 +38,10 @@ My interests:
 
 My accomplishments: 
 - Moderator in [BattleTabs Discord Server](https://discord.gg/wNkujNWkqf)
-- Grade 6 AMEB Piano with B+ (Honours)
+- Grade 8 AMEB Piano Repertoire with A grade (Honours)
 - **One** finished game, [Keyboard Master](https://split-diamond-labs.github.io/Keyboard-Master)
-- U rank and top 2000 in TETR.IO
-- Respectedish opener theorist with six completed Tetris openers
+- U rank and top 2000, 505k Blitz and 0:39.680 40 Line sprint in TETR.IO 
+- Respectedish opener theorist with eight completed Tetris openers
 - Rubik's Cube 3x3 solved in 47 seconds, 4x4 solved in 179 seconds 
 - Division Winner in the 2022 NSW Secondary Schools Chess Competition (Intermediate) 
 
