@@ -45,5 +45,5 @@ My accomplishments:
 - Rubik's Cube 3x3 solved in 47 seconds, 4x4 solved in 179 seconds 
 - Division Winner in the 2022 NSW Secondary Schools Chess Competition (Intermediate) 
 
-If you want to contact me, pop me a friend request at Flyspeck101#3903 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
+If you want to contact me, pop me a friend request at @flyspeck101 on Discord or [email me](mailto:yeetersdeleters12345@gmail.com). 
 
